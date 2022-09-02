@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mindgaming23
-- 👀 I’m interested in CODING,GAME DEV,ETHICAL HACKING
+- 👀 I’m interested in CODING,GAME DEV,ETHICAL HACKING AND ANIMATION!
 - 🌱 I’m currently learning ...BASIC PROGRAMMING LANGUAGE
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
